@@ -13,4 +13,4 @@ How to fix to FHD
 5. Enjoy!
 
 Thanks
-#gimalaji_blake
+# silentgameplayzz
